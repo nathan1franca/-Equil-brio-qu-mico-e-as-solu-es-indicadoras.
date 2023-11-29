@@ -1,0 +1,1 @@
+# -Equil-brio-qu-mico-e-as-solu-es-indicadoras.
